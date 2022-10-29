@@ -1,5 +1,4 @@
-- 👋 Hi, love
-- HAHAHAH so ayun nga nauna natawa ko 
+- 👋 Hi,
 - i just wanna ask you something can i?
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
